@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @safaazakine
+- 👀 I’m interested in @maminelahiala
+- 🌱 I’m currently learning how to be a wife
+- 💞️ I’m looking to collaborate on with @maminelahiala on this
+- 📫 How to reach me : thru @maminelahiala
+- 😄 Pronouns: don't call me
+- ⚡ Fun fact: don't care about other person except @maminelahiala
+- 🔥 all this hotness is only for @maminelahiala and not shared.
+- PS: Safaa Zakine is temporary futurely I am Safaa Lahiala deal with it you people ❤️
